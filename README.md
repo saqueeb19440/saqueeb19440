@@ -21,7 +21,7 @@
 - 💼 Looking for **Software Development Engineer (SDE)** opportunities
 
 📧 **Email:**  
-**mdsaqueeb05@gmail.com**
+**mdsaqueeb03@gmail.com**
 
 🌐 **Portfolio:**  
 Coming Soon 🚀
